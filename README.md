@@ -96,3 +96,9 @@ Un 52.63% de estos estudiantes se prepararon para el examen, un 42.1% no lo hici
 
 ![Alt text](https://i.imgur.com/lmU8H5C.png)
 
+
+# Punto 5
+
+URL vídeo Youtube:
+
+https://youtu.be/HM1m2UxEiqo
